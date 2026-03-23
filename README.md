@@ -67,7 +67,7 @@
                                                             
   ## Contact
 
-  sydneyxini.yu@gmail.com                     
+[sydney_agi@outlook.com](mailto:sydney_agi@outlook.com)                     
                                           
   ---
                                                                                                                                
