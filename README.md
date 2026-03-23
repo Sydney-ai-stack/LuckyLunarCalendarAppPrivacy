@@ -34,7 +34,7 @@
                                                                                                                                
   ## 联系我们                                               
                                                                                                                                
-  如有隐私相关问题：sydneyxini.yu@gmail.com   
+  如有隐私相关问题：[sydney_agi@outlook.com](mailto:sydney_agi@outlook.com)  
                                                                                                                                
   ---                                                       
                                                                                                                                
